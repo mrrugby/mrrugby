@@ -1,4 +1,4 @@
-Hi there, I'm Shaka! 👋 | mrrugby
+Hi there, I'm Shaka! 👋 | snji
 
 🚀 About Me
 
